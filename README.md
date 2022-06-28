@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋:smiling_face_with_three_hearts:
 
 meu nome é **emilly**
 
